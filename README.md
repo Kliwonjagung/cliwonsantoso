@@ -1,2 +1,5 @@
 # cliwonsantoso
-CITY BATIK
+City Jagung
+Pekalongan
+Indonesia
+Aspek
